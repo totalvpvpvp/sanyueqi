@@ -8,7 +8,7 @@
 
 解锁Netflix、Disney+、DMM、动画疯、Hulu、Abema、Niconico、HBO等众多流媒体平台.
 
-支持ChatGPT、Tiktok直播、Facebook注册、Shopee、Temu、SHEIN等电商平台.1111111111
+支持ChatGPT、Tiktok直播、Facebook注册、Shopee、Temu、SHEIN等电商平台.11111111111
 
 适用于各类海外业务，跨境电商、社交文娱等.
 
